@@ -17,7 +17,7 @@ ___🥷(✰𝐀𝐋𝐎𝐍𝐄►𝐌𝐑-𝐑𝐎𝐂𝐊𝐘✪𝟒𝟎𝟒�
 ___🥷(✰𝐀𝐋𝐎𝐍𝐄►𝐌𝐑-𝐑𝐎𝐂𝐊𝐘✪𝟒𝟎𝟒✰)🥷___
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=✰𝐀𝐋𝐎𝐍𝐄►𝐌𝐑-𝐑𝐎𝐂𝐊𝐘✪𝟒𝟎𝟒✰-pmishra&label=Profile%20views&color=0e75b6&style=flat" alt="✰𝐀𝐋𝐎𝐍𝐄►𝐌𝐑-𝐑𝐎𝐂𝐊𝐘✪𝟒𝟎𝟒✰-pmishra" /> </p>
 
-- 👨‍💻 All of my 𝑻𝑬𝑳𝑬𝑮𝑹𝑨𝑴-𝑪𝑨𝑳𝑳-𝑩𝑶𝑿 are available at [https://t.me/ehcehcemran0011223311cyber99/simplified_learner](https://t.me/ehcehcemran0011223311cyber99)
+- 👨‍💻 All of my 𝑻𝑬𝑳𝑬𝑮𝑹𝑨𝑴-𝑪𝑨𝑳𝑳-𝑩𝑶𝑿 are available at [https://wa.me/01320920249](https://t.me/ehcehcemran0011223311cyber99)
 ___🥷(✰𝐀𝐋𝐎𝐍𝐄►𝐌𝐑-𝐑𝐎𝐂𝐊𝐘✪𝟒𝟎𝟒✰)🥷___
 - ⚡ Fun fact **I am funny😅**
 
